@@ -1,0 +1,1 @@
+[https://www.mediafire.com/folder/u05skfhf1xmua/hsg12_quangngai_2025_2026](https://www.mediafire.com/folder/u05skfhf1xmua/hsg12_quangngai_2025_2026)
